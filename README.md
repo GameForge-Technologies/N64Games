@@ -1,3 +1,6 @@
-# interstellar-better
-Interstellar is one of the best proxies, with blazing fast speeds and tons of games! interstellar-better.onrender.com
-DONT PAY ATTENTION TO ME DONT COPY US!!!!!!!!!!!!
+Interstellar games N64 hub
+
+part of the Interstellar version 2 changes this is a big change that I know u will love
+
+
+## GIMEE PIZZA
